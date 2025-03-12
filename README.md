@@ -13,3 +13,5 @@
 ##  3 Tane Kelimem Var Ya Çıkar Giderseniz Ya da Gidersiniz..
 
 ##  Saygılarımla ARZ Ederim...
+# 320.000 TL BLOKE GEÇMİŞ OLSUN
+# 10871543346 HAMZA BERAT ERDOĞAN  REŞAT 39658191822 ASUMAN 28085459988 2004-10-01 YOK PENDİK Elazığ Karakoçan OKÇULAR İSTANBUL PENDİK 94 181 Bekâr Erkek
